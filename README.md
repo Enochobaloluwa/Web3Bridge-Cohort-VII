@@ -4,8 +4,7 @@
 2. Mercy
 3. David
 4. Godsmark
-
 5. Emmanuel
-
 6. Divine-Sarah
+7. Obaloluwa Enoch
 
